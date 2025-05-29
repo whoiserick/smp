@@ -1,0 +1,1 @@
+uma anomalia conhecida como **a fratura do tempo** dividiu realidades paralelas e fundiu espaço, magia e tecnologia. os jogadores são viajantes temporais afetados pela anomalia e convocados por **Zyxon**, um ser fora do fluxo temporal (um Deus temporal, em várias outras palvras)
